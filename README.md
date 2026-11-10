@@ -10,4 +10,4 @@ I grew up in Hyderabad, and I earned my degree in Civil Engineering from IIT Roo
 
 Engineering taught me how to build things that last. I taught myself design to learn how to make them worth remembering.
 
-I'm obsessively curious, and always the first to get my hands on new creative tools. I'm currently open to [freelance work](https://contra.com/kiiradesign/work?r=kiiradesign) for those who take craft seriously.
+I'm obsessively curious, and always the first to get my hands on new creative tools. I'm currently available for full-time roles and collaborations.
